@@ -1,8 +1,8 @@
 This is a list of my favorite things 😃 :
 1. APIs
 2. Sports
-  * Football
-  * Tennis
+  1. Football
+  2. Tennis
 3. Food
-  i. Sushi
-  ii. Burgers
+  1. Sushi
+  2. Burgers
