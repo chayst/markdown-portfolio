@@ -1,0 +1,1 @@
+![Thibault Chays profile picture](https://media-exp1.licdn.com/dms/image/C4E03AQF4hlMIEerh4g/profile-displayphoto-shrink_200_200/0/1612206727623?e=1620864000&v=beta&t=6o6i_B6tpZvHWL328kheWi0abByt2ToSyOi2n-Y9U2k)
